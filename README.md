@@ -1,5 +1,3 @@
 # nocturnoING
 
-Feliz★•。★Navidad★ 
-Un feliz año nuevo* 。 • ˚ ˚ ˛ ˚ ˛ •
-
+Un feliz año nuevo* 
